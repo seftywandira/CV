@@ -1,4 +1,5 @@
 # Sefty Wandira
+## About
 I am a supply chain and procurement professional with over 10 years of experience in the manufacturing industry, with strong exposure to PPIC (Production Planning and Inventory Control), purchasing, and supplier management.
 
 My focus is on driving efficiency, cost-effectiveness, and reliability throughout the supply chain. I enjoy collaborating across departments to streamline processes and solve operational challenges.
