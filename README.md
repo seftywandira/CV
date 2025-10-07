@@ -7,8 +7,8 @@ My focus is on driving efficiency, cost-effectiveness, and reliability throughou
 I’m currently exploring opportunities for career advancement and academic growth, particularly in international business and global supply chain management.
 
 ## Education
-- 2025-2026* Global Master of Business Administration at Tunghai University (Taiwan) *expected
-- 2014-2018 Public Administration at STIAMI Institute of Social Sciences and Management (Indonesia)
+- 2025-2026 Global Master of Business Administration at Tunghai University, Taiwan *expected
+- 2014-2018 Public Administration at STIAMI Institute of Social Sciences and Management, Indonesia
 
 ## Experiences
 - 2015-2025 Sales Marketing at PT. Tiga Karunia Indonesia
