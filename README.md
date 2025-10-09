@@ -14,3 +14,5 @@ I’m currently exploring opportunities for career advancement and academic grow
 - 2015-2025 Sales Marketing at PT. Tiga Karunia Indonesia
 - 2014-2015 Purchasing Staff at PT. TRC Indonesia
 - 2013-2014 PPIC Staff at PT. IK Precision Indonesia
+
+## Job Description
